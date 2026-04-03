@@ -1,2 +1,2 @@
 # -shooting-stars-ahead-of-me.-
-:( cold hearted girl..
+laskar mentari selalu bersinar terang! 
